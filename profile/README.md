@@ -4,7 +4,7 @@ The Indian government has officially approved the formation of the **8th Pay Com
 
 The **8th Pay Commission** aims to address wage revisions effectively before the current **7th Pay Commission** concludes its tenure in 2026. The process will involve consultations with stakeholders, including central and state governments, PSUs, and employee unions. A chairman and two members will soon be appointed to lead the panel.
 
-- [Use 8th Pay Commission Salary Calculator: click here](https://www.hrcalcy.in/p/8th-pay-commission-salary-calculator.html)
+- [Use 8th Pay Commission Salary Calculator: click here](https://www.hrcalcy.in/2025/01/8th-pay-commission-salary-hike-fitment-factor-calculator.html)
 
 ## Key Updates:
 
